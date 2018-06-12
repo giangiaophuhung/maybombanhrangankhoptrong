@@ -6,6 +6,14 @@ Bơm bánh răng ăn khớp trong là loại máy bơm thủy lực rất ứng 
 - <a href="http://spro.vn/cau-tao-may-bom-banh-rang-an-khop-trong">Máy bơm bánh răng ăn khớp trong</a> dùng để vận chuyển các dung dịch đặc như: mật ong, mía đường, mật rỉ đường, các loại DO, dầu FO,...
 - Máy bơm bánh răng được hiệu Kyang Chen được nhập khẩu từ Đài Loan (thời gian bảo hành 12 tháng).
 
+<b>ƯU ĐIỂM NỔI BẬT</b>
+- Độ bền và tuổi thọ cao.
+- Hiệu suất cao.
+- Độ nhấp nhô lưu lượng và áp suất rất thấp.
+- Kích thước nhỏ gọn, đơn giản, tiếng ồn thấp.
+- Đặc tính hút tuyệt vời, độ nhớt được phép cao.
+- Bảo trì bảo hành nhanh chóng, đơn giản.
+
 <b>Liên hệ mua hàng tại công ty chúng tôi:</b>
 Spro là đơn vị chuyên cung cấp các dòng máy bơm công nghiệp uy tín, chất lượng tại Việt Nam.
 Hotline: 0986 954 423
